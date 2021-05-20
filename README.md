@@ -1,2 +1,2 @@
-# jahidmomin.github.io
+# pratikkhose.github.io
 Resume Template
