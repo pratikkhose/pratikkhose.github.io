@@ -1,1 +1,0 @@
-# pratikkhose.github.io
